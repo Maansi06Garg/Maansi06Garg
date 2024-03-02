@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1FjSnK-Lt7BersOQSfYo9g0DKr0DkTcxj/view?usp=sharing](https://drive.google.com/file/d/1FjSnK-Lt7BersOQSfYo9g0DKr0DkTcxj/view?usp=sharing)
 
-- ⚡ Fun fact **My first computer had less memory than my current coffee mug. Ah, the nostalgic days of floppy disks!**
+- ⚡ Fun fact **My coding playlist includes songs that make my fingers type faster. It's all about that rhythmic flow!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
